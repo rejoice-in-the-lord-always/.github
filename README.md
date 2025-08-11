@@ -1,1 +1,3 @@
-# .github
+# *Rejoice in the Lord Always: Fill Your Heart with Joy*
+## *Discover 15 powerful, soul-refreshing reasons to rejoice in the Lord—perfect for daily inspiration, spiritual growth, and deep inner peace. Let this journey awaken your spirit. Joy isn’t just a feeling—it’s a divine choice. Choose to rejoice in the Lord daily — it transforms your soul, strengthens your faith, and fills your life with unshakable peace.* [More details…](https://spiritualkhazaana.com/web-stories/rejoice-in-the-lord-always/)
+## #rejoiceintheLord #rejoiceintheLordalways #Christianjoy #spiritualmotivation #inspirationalBibleverses #joyinhardtimes #worshipandjoy #Philippians4:4 #Zephaniah3:17
